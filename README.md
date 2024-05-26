@@ -1,4 +1,4 @@
-### vindas ao meu perfil 💙
+### seja bem vindos ao meu perfil 💙
 
 Meu nome é randomcat3044
 
